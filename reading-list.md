@@ -1,0 +1,14 @@
+
+
+
+### 2018
+1. 《Letter from Unknown Woman》 2018.2
+2. 《Jane Eyre》2018.3
+3. 《The Painted Veil》2018.5
+4. 《The Great Gatsby》2018.6
+5. 《The Moon and Sixpence》2018.8
+6. 《Selected Stories of O. Henry》2018.9
+7. 《The Psychology Book》2018.12
+
+
+### 2017
